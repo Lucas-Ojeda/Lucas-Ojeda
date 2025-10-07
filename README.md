@@ -57,7 +57,7 @@ Actualmente estoy finalizando la **Tecnicatura Universitaria en Programación (U
 📧 **Correo:** [lucaojeda57@gmail.com](mailto:lucaojeda57@gmail.com)  
 📱 **Teléfono:** +54 3704-558171  
 🌍 **Ubicación:** Resistencia, Chaco — Argentina  
-💼 **LinkedIn:** [linkedin.com/in/lucas-david-ojeda](https://www.linkedin.com/in/lucas-david-ojeda) *(ajustar si tu perfil es otro)*
+💼 **LinkedIn:** [linkedin.com/in/lucas-david-ojeda](https://www.linkedin.com/in/lucas-ojeda-a74882388 ) 
 
 ---
 
